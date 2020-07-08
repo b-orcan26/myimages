@@ -32,4 +32,10 @@
 
 ![s16](https://i.hizliresim.com/tnDTJi.jpg)
 
+![s17](https://i.hizliresim.com/J1lC1n.jpg)
+
+![s18](https://i.hizliresim.com/4Q8unN.jpg)
+
+![s19](img]https://i.hizliresim.com/R3jKGL.jpg)
+
 
