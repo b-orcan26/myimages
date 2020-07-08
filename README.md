@@ -36,6 +36,6 @@
 
 ![s18](https://i.hizliresim.com/4Q8unN.jpg)
 
-![s19](img]https://i.hizliresim.com/R3jKGL.jpg)
+![s19](https://i.hizliresim.com/R3jKGL.jpg)
 
 
