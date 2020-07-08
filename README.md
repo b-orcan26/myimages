@@ -11,3 +11,5 @@
 ![s5](https://i.hizliresim.com/UavMLD.jpg)
 
 ![s6](https://i.hizliresim.com/uOOOCX.jpg)
+
+![s7](https://i.hizliresim.com/MQxE54.jpg)
